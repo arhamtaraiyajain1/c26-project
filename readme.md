@@ -1,0 +1,1 @@
+first melt the chocolate of your choice in a boiler pour it in another bowl and then dip the strawberries into it till they all are fully covered by chocolate and then add the sprinkles of your choice and freeze the strawberries.
